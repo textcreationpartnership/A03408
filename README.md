@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A Pollitique Platt for the honour of the Prince, the greate profite of the publique state, relief of
+
 1. THE EPISTLE TO ENGLANDE.
 
 1. ¶ Fraunces Hitchcocke to the Readers of this his brothers booke.
